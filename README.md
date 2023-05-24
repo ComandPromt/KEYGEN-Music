@@ -2,7 +2,7 @@
 
 ## Download / Descargar / Baixar
 
-[Download](http://tiny.cc/qk0wfz)
+[Download](https://cutt.ly/weYlKeM)
 
 [Descargar](https://cutt.ly/weYlKeM)
 
